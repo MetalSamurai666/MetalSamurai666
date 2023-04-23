@@ -1,5 +1,5 @@
 # ⛧ About Me:
-🔭 I’m currently working on Grandsoft.uz<br>⛧ I’m looking to collaborate on nothing<br>⛧ I’m looking for help with html<br>⛧ I’m currently learning html<br>⛧ Ask me about nothing
+⛧ I’m currently working on Grandsoft.uz<br>⛧ I’m looking to collaborate on nothing<br>⛧ I’m looking for help with html<br>⛧ I’m currently learning html<br>⛧ Ask me about nothing
 
 
 ## ⛧ Socials:
