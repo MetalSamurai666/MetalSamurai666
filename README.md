@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Namxu.uz<br>👯 I’m looking to collaborate on nothing<br>🤝 I’m looking for help with html<br>🌱 I’m currently learning html<br>💬 Ask me about nothing<br>⚡ Fun fact - you'll die
+🔭 I’m currently working on Hayot.uz<br>👯 I’m looking to collaborate on nothing<br>🤝 I’m looking for help with html<br>🌱 I’m currently learning html<br>💬 Ask me about nothing<br>⚡ Fun fact - you'll die
 
 
 ## 🌐 Socials:
